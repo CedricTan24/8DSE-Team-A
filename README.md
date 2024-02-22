@@ -1,4 +1,4 @@
 8DSE Team A
 
 Step 1&2:
-https://main.dgduspap548h3.amplifyapp.com/
+https://main.d35rvfscu5q5fa.amplifyapp.com/
